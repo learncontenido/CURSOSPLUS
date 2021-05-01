@@ -1,2 +1,2 @@
 # CURSOSPLUS
-mas cursus redi a yt
+mas cursos ready a yt
